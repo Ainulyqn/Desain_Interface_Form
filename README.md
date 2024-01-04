@@ -6,4 +6,4 @@
 
 Berikut penjelasan mengenai aplikasi yang telah saya buat dalam Link yaoutube saya [click Here](https://youtu.be/X4LrFSWr1k8)
   
-Berikut juga saya lampirkan penjelasan dalam bentuk world [click Here](https://docs.google.com/document/d/13r0Y0859RluZgxVl1fqQc5EaPkQj4fXvOfpQg5Ve3rE/edit?usp=sharin)
+Berikut juga saya lampirkan penjelasan dalam bentuk world [click Here](https://docs.google.com/document/d/13r0Y0859RluZgxVl1fqQc5EaPkQj4frE/edit?usp=sharing)
